@@ -41,6 +41,7 @@ ndship_is_magic_stamp_by_crvyons_dfvgmkf-fullview](https://github.com/user-attac
 ![stamp__nepeta_by_shendijiro_d42uqil-fullview](https://github.com/user-attachments/assets/6eb5f858-4636-4e5c-8045-bf7e42c6066e)
 ![sollux_stamp_by_fluffae_d9d4vud-fullview](https://github.com/user-attachments/assets/a6118f89-a202-4368-bb5a-8b80bb8eb42e)
 ![dhw0wmt-2f19e4e5-66d1-4d93-b0bf-112a2bb74eed](https://github.com/user-attachments/assets/9a659701-8f95-4d6c-a485-901a8ff39c0f)
+![kurloz_makara_stamp_by_karkatspants_dcxivks-fullview](https://github.com/user-attachments/assets/2c139daa-d972-4686-9434-4c697d4f3d7e)
 ![dg5sbu2-aa9367f7-de96-48a4-bfae-1c3f![dhw0wmt-2f19e4e5-66d1-4d93-b0bf-112a2bb74eed](https://github.com/user-attachments/assets/36ed46b9-db2c-4315-ba51-a347652a984a)
 9ba48ee3](https://github.com/user-attachments/assets/18c9fac9-c798-480e-b897-1760caae31b0)
 ![__dead_stamp___by_diethandgrenade_d1oga7i-fullview](https://github.com/user-attachments/assets/7a2520d3-ee11-46f0-a86f-e2a0c050407f)
